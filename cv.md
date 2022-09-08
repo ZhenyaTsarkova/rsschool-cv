@@ -3,8 +3,11 @@
 ## **Contacts**
 
 - **Mobile:** +375(29)-159-13-40
-- **Email:** @gmail.com
+- **Email:** TsarkovaZhenya@gmail.com
 - **GitHub:** [ZhenyaTsarkova](https://github.com/ZhenyaTsarkova)
+- **Telegram:** @ZhenyaTsarkova
+- **Linkedin:** [ZhenyaTsarkova](https://www.linkedin.com/in/zhenya-tsarkova-342098231/)
+- **Instagram:** [ZhenyaTsarkova](https://www.instagram.com/zhenya.tsarkova/)
 
 ## **About me**
 
